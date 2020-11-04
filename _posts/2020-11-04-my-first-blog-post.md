@@ -1,5 +1,5 @@
 ---
-title: "Tanna-Sup"
+title: "Tanna Sup"
 date: 2020-11-04
 ---
 
