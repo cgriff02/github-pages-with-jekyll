@@ -1,4 +1,3 @@
-# Welcome to my blog
 
 I'm glad you are here. I plan to talk about hao nao wan man i save kukum kakae blem lo faea
 
